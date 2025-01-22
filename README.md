@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **aggarwalaparna73@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1TNCbdAsOSxvXD0i87mwsRsF12eKqbDb6/view?usp=drive_link](https://drive.google.com/file/d/1TNCbdAsOSxvXD0i87mwsRsF12eKqbDb6/view?usp=drive_link)
+- 📄 Know about my experiences [here](https://rb.gy/i1vm1z)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
